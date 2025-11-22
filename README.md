@@ -1,0 +1,1 @@
+# Life-Cycle-Assessment-LCA-of-50kW-Solar-PV-System
